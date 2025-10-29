@@ -40,4 +40,4 @@ We reserve the right to update or modify this Privacy Policy at any time. Any si
 
 ## Contact Information
 
-For any questions or concerns regarding the privacy policy, please send us an email to: Tawredaapp@gmail.com.
+For any questions or concerns regarding the privacy policy, please send us an email to: infoo@tech4lifebs.com.
